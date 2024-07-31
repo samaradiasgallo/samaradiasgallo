@@ -4,7 +4,6 @@
 - Estou trabalhando em projetos *JavaScript* e *HTML*;
 - Para dúvidas ou contato, me envie um email em  _0000112462451xsp@al.educacao.sp.gov.br_
 
-  ( ˶•o•˶)    ( •ω• )     ( •⤙•  )
-  (ა🍱 )    ( ა🍙૮)｡     (🍜٩  )
+⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
 
   ![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExMXg0cnUxa3UxZ2JkZGo0cGJ3bW04cHFsbXlqdmF6MDBvdGo4M2p4NCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/gSgW7pEhRYN5jotEmk/giphy.webp)
